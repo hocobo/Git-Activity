@@ -4,6 +4,8 @@
 
 - Reading
 - Writing
+- Disc Golf
+- Playing Warhammer 40k
 
 I am looking for a full time job
 
